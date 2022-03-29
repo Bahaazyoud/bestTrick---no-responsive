@@ -1,0 +1,1 @@
+# bestTrick---no-responsive
